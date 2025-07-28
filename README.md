@@ -3,4 +3,4 @@ It is a Nigerian restuarant in RWANDA
 ## ABOUT THE RESTUARANT
 
 ### LOCATION
-
+KANOMBE, KIGALI CITY RWANDA
